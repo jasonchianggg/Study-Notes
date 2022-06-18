@@ -1,2 +1,2 @@
 # Study-Notes
-all notes during from my secondary school
+all notes from my secondary school
